@@ -1,7 +1,7 @@
 Kacey Farewell Tour
 ===================
 
-Places I want to hit before leaving southern California:
+Places I have yet and want to hit before leaving southern California:
 
 - [Broken Yolk Cafe](http://thebrokenyolkcafe.com)
 - ~~[Cucina enoteca Del Mar](http://www.urbankitchengroup.com)~~ :star::star::star::star:
