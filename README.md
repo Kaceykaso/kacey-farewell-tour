@@ -3,7 +3,7 @@ Kacey Farewell Tour
 
 Places I have yet and want to hit before leaving southern California:
 
-- [Breadbar](http://www.breadbar.net)
+- ~~[Breadbar](http://www.breadbar.net)~~ :star::star::star::star:
 - [Broken Yolk Cafe](http://thebrokenyolkcafe.com)
 - ~~[Cucina enoteca Del Mar](http://www.urbankitchengroup.com)~~ :star::star::star::star:
 - [Ironside](http://ironsidefishandoyster.com)
