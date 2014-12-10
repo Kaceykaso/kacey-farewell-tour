@@ -11,6 +11,6 @@ Places I have yet and want to hit before leaving southern California:
 - [Las Olas](http://www.lasolasmex.com)
 - [Sea and Smoke](http://seaandsmoke.com)
 - [Stone Brewing](http://www.stonebrewing.com)
-- [Sublime Tavern](http://sublimetavern.com/home/)
+- ~~[Sublime Tavern](http://sublimetavern.com/home/)~~ Decided against this, couldn't find it.
 - [Tower 13](http://www.tower13.com/events/)
 
